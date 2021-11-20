@@ -1,16 +1,31 @@
-### Hi there 👋
+Missed out on Safemoon? how about HTMOON? We bring you HTMOON FOMO. The OG Asian HTMOON on HECO did 100,000x. HTMOON FOMO now coming to BSC! PREPARE FOR FOMO 
 
-<!--
-**HTMoonFOMO/HTMOONFOMO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🈲 Extremely Strong Chinese Community. Ton of Chinese Promotions and Marketing
 
-Here are some ideas to get you started:
+💎 NEXT 100,000x GEM 💎
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+💰$BUSD REWARDS FOR HODLING HTMOON FOMO 🚀
+
+⚙️ TOKENOMICS:
+
+🪐 4% Liquidity Pool
+🪐 3% $BUSD rewards
+🪐 3% Marketing
+🪐 2% Dev Wallet
+
+CONTRACT: 0x2A4bF846844A65CA585aB5FBBA92f4853F71F02a
+
+⏰Presale - 21st November at 13:00 UTC!
+
+🚀Launch ONE hour after presale at 14:00 UTC!
+
+Limited whitelist spots available
+
+📣TG:
+https://t.me/HtmoonFomoEn
+🇨🇳Chinese TG:
+https://t.me/HtmoonFomo
+🌐 Website:
+https://htmoonfomo.com/
+🐦 Twitter:
+https://twitter.com/HTMoonFomo
